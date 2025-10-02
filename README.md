@@ -15,20 +15,21 @@ I like to interact, I love to be with my lover, and cuddles! , just don't be wei
 
 Mentioning people I care for !:
 
-- Sunny/Izu/Jewels ☘️ (I love you so much, I don't know what to do without you, Sunshine.)
+- Sunny/Izu/Jewels ☘️ (I love you so much, I don't know what to do without you, Mwamwaz Sunshine.)
 - Matteo (My Child, Ilysm Kiddo! ><)
 - Munler (My Child also, Ilysm, I love the energy you give us, your so cute heh)
 - Ash (My Child, Ilysm Kiddo, Mwaz!)
 - Casper (Ily bro, you were always there for me and I am grateful for it)
-- Chu (Ily, stay being cutezy :3)
+- Chu/Coco (Ily, stay being cutezy :3)
 - Rei (Ily brozki, your there when I was in my lowest and tysm for that)
 - Jenn (Ily Sigma, your vocab is so braintot, js ily bro hehz)
 - Zhumi (One of my og friends in ponytown, I will always cherish you as my friend brozki, Ily.)
-- Yoirin (Onw of my of friends in ponytown, you and zhu are always be my treasure for this game as you guys welcomed me, Ily.)
+- Yoirin (One of my of friends in ponytown, you and zhu are always be my treasure for this game as you guys welcomed me, Ily.)
 - Brinn (One of my og frienda in ponytown, You have always been here with me, and tysm for everything, Ily.)
 - Katzuku (Ily, My fav nephew, mwaz:>)
 - Mel (Ily Brozki, I love your personality sm, pls don't get shot)
-
+- Snax (Ily, I'll be always here when you need me, mwamwaz!!)
+- Angel (Ily, Your so sigma, mwamwaz!!
 
 - *(THIS SECTION WILL BE ADDED MORE SOON!)*
 
